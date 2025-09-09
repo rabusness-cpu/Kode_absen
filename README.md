@@ -1,0 +1,2 @@
+# Kode_absen
+Kode
